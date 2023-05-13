@@ -13,9 +13,6 @@
 ---
 <br>
 
-
-<h4 align="center">🏓PROJETO EM ANDAMENTO 🏓</h4>
-
 <br>
 <br>
 <br>
